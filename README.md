@@ -1,1 +1,0 @@
-# T-tervishoiu-juhend
